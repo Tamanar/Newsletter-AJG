@@ -2,17 +2,23 @@
 
 ## Édito
 
-Bonjour à tous, dans cette première newsletter que je vais essayer de faire durant l'année.  
-Je suis pas mal l'actu des jeux de société, donc je vous propose de faire tous les mois, à la fois une veille que je trouve intéressante, plus liée à l'AJG, et un peu de vie de l'association.
+Bienvenue à tous dans le premier numéro de cette newsletter que je vais essayer de rédiger tout au long de l'année.    
+
+
+Je vous propose de faire tous les mois à la fois une veille des dernières sorties et actualités jeux de société, et un suivi de la vie de l'association.  
+
 
 ## Vie locale
 
 07 septembre :  
 C'était la rentrée ! Beaucoup d'anciennes têtes, mais aussi de nouvelles personnes, nous ont rejoints.  
-Nous avons joué à beaucoup de jeux qui pouvaient se jouer à beaucoup, pour essayer de briser la glace entre les anciens et les nouveaux.
+Des jeux à nombreux joueurs nous ont permis de briser la glace  entre anciens et nouveaux membres de l'AJG.
 
 11 septembre :  
-Jean-Phi nous a fait un jeu pour retrouver les nouveautés du début de l'année ![jeux_mystere](jeux_mystere.png)  
+Jean-Phi nous a proposé une énigme pour révéler les nouveautés du début de l'année !    
+[jeux_mystere](jeux_mystere.png)  
+
+
 Les jeux sont Discordia, 7 Wonders Dice et 1er Contact.
 
 14 septembre :  
@@ -25,10 +31,12 @@ Absent, mais Discordia, l'un des nouveaux jeux, a pu être dépunché et découv
 Nouvelle table pour Discordia et 1er Contact. Il y avait aussi une table d'Artemis Project.
 
 
-##
+### Bourse aux jeux
 
 Samedi 10 octobre :  
-Bourse aux jeux aux Contrées des Jeux à partir de 9h. Le dépôt se fait à partir du lundi d'avant (le 5). Pensez à y aller tôt si vous voulez les meilleures opportunités.
+Bourse aux jeux aux Contrées des Jeux à partir de 9h. Le dépôt se fait à partir du lundi d'avant (le 5). Pensez à y aller tôt si vous voulez les meilleures opportunités.   
+Si vous vendez vos jeux, vous aurez le droit à un bon d'achat dans le magasin.   
+
 
 ## Festivals et autres
 ### Cannes
@@ -38,7 +46,7 @@ Après un vote du public, l'affiche du festival de Cannes a été choisie ! C'es
 ### Vichy
 
 Les 19 et 20 septembre, il y a eu le festival des jeux de Vichy.  
-Ce festival est important car c'est le plus gros salon des professionnels du milieu après le FIJ. Comme il a lieu à peu près à mi-route entre deux Cannes, cela permet de voir les prochaines sorties françaises qui vont arriver soit en fin d'année (notamment en octobre/novembre à cause d'Essen), soit à Cannes ou l'année prochaine.
+Ce festival est important car c'est le plus gros salon des professionnels du milieu après le FIJ. Comme il a lieu à peu près à mi-route entre deux Cannes, cela permet de voir les prochaines sorties françaises qui vont arriver soit en fin d'année (notamment en octobre/novembre lié d'Essen), soit à Cannes ou l'année prochaine.
 
 Les groupements des boutiques ludiques ont remis des prix :
 * Prix éditorial :
