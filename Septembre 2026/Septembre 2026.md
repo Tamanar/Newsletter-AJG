@@ -28,7 +28,7 @@ Certains des nouveaux jeux ont pu être testés, notamment 1er Contact avec Jér
 Absent, mais Discordia, l'un des nouveaux jeux, a pu être dépunché et découvert.
 
 28 septembre :  
-Nouvelle table pour Discordia et 1er Contact. Il y avait aussi une table d'Artemis Project.
+Nouvelle table pour Discordia et 1er Contact. Il y avait aussi une table d'Artemis Project. Courtisans et Rumblebots, deux nouveaux jeux ont pu être également testés.
 
 
 ### Bourse aux jeux
