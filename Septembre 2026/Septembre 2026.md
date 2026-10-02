@@ -16,7 +16,7 @@ Des jeux à nombreux joueurs nous ont permis de briser la glace  entre anciens e
 
 11 septembre :  
 Jean-Phi nous a proposé une énigme pour révéler les nouveautés du début de l'année !    
-[jeux_mystere](jeux_mystere.png)  
+ ![jeux_mystere](jeux_mystere.png)  
 
 
 Les jeux sont Discordia, 7 Wonders Dice et 1er Contact.
