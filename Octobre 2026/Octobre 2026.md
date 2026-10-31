@@ -2,7 +2,7 @@
 
 ## Édito
 
-
+Étant en plein travaux de déménagement j'ai un peu moins suivis les nouveauté ce mois ci. 
 
 
 ## Vie locale
@@ -17,7 +17,7 @@ Dernière séance avant les vacances. C'était une grosse séance qui s'ouvrait 
 Vacances ! Mais une partie du club s'est retrouvée au O'Sullivans.
 
 26 octobre :  
-Rebelote !
+Rebelote ! Mais avec plus de monde ! 
 
 
 
