@@ -17,7 +17,7 @@ Dernière séance avant les vacances. C'était une grosse séance qui s'ouvrait 
 Vacances ! Mais une partie du club s'est retrouvée au O'Sullivans.
 
 26 octobre :  
-Rebelote ! Mais avec une pous grande tablée !
+Rebelote ! Mais avec une plus grande tablée !
 
 
 
@@ -28,7 +28,7 @@ Pour l'instant, c'est trop récent pour que j'aie vu énormément de retours.
 [Queen Alice](https://www.myludo.fr/#!/game/queen-alice-96154) : des queues interminables pour acheter le jeu, mais les retours que j'ai vus sont mitigés.  
 [Kingdom Come: Deliverance](https://www.myludo.fr/#!/game/kingdom-come-deliverance-99367) : à peu près pareil.
 
-Pour l'instant c'est trop récent pour avoir assez de retours. J'attends les retours de certaines personnes que je suis pour savoir quels jeux sont à retenir et les incontournables à tester.
+Pour l'instant c'est trop récent pour avoir assez de retours pour savoir quels jeux sont à retenir et les incontournables à tester.
 
 
 
